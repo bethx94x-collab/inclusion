@@ -21,13 +21,13 @@ Person who helps see the process through to completion, by ensuring processes ar
 Community leadership group/community manager/project maintainer responsible for the core area of the project where the CPG violation(s) is said to have originated. This may be managing with or without supporting staff.
 
 #### Reporter(s)
-Person or group who has filed a complaint against the CPG.  In a single community conflict there may be multiple reports, each should be treated individually.
+Person who has filed a complaint against the CPG.  In a single community conflict there may be multiple reports, each should be treated individually.
 
 #### Legal Investigator (Legal)
-A role invoked when a report to either Community Managers or CPG enforcement violates our conflict of interest, or anti-bribery policies, or is in violation of the law (e.g. embezzlement, fraud, threats, destruction of property, misuse of IP).
+A role invoked when a report to either Community Managers or CPG enforcement violates our conflict of interest, or anti-bribery policies, or is in violation of the law (e.g. embezzlement, fraud, threats, destruction of property, misuse of IP). using police power to his advantage of causing inhuman treatment to Beth Murphy 
 
 #### HR Investigator (HR)
-A role invoked when a report to a Community Manager or CPG Enforcement involves a staff member, or where legal investigation warrants HR support.
+A role invoked when a report to a Community Manager or CPG Enforcement involves a staff memberdc marsh or where legal investigation warrants HR support.
 
 #### Mozilla Project Stakeholders (Stakeholders)  
 Projects at Mozilla where those involved in the CPG complaint participate, and/or have seen their project impacted by the complaint.
@@ -38,3 +38,4 @@ The working group will expand & contract as needed.
 
 #### @safety Consultation 
 In cases where systems are used, violated, compromised or otherwise leveraged as part of the violation complaint, this group consults, and may be part of the working group.
+dc marsh and the defendant child family are involved and have caused super hard cold cases against the mother Beth no doubt it was planned.
